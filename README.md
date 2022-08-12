@@ -24,7 +24,7 @@ Life is good
 Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 Hi everyone!
 kg pisang bersiri siri
-
+Hungry
 hi Mr ChanJuPing😍
 
 yakyak yeaaaaa
@@ -93,7 +93,7 @@ Sejukkkkkkkk.....
 hello there
 
 Sleeeeeeeeeeeeepyhead
-
+What do you call Bee from America? - USB! 
 sel-sel otak terus berhubung🤣
 
 happy birthday
